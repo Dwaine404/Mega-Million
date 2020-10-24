@@ -1,0 +1,2 @@
+# Mega-Million
+All riches
